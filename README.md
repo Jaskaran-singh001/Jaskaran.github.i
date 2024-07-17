@@ -15,4 +15,4 @@ I recently passed my 10+2 in Govt.sen.sec school,Salana
 
 **Result**: PASS 404
 
-      **INDUCTION ACTIVITY REPORTE**
+      INDUCTION ACTIVITY REPORTE
