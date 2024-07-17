@@ -4,7 +4,7 @@ I recently passed my 10+2 in Govt.sen.sec school,Salana
 
  Currently,I'm studying Btech CSE from GNE College Ludhiana.
 
- "MARKSHEET"
+ **MARKSHEET**
 | Date | Resources Person | Description |
 | ----------- | ----------- | ----------- |
 | 16.07.2024 | Dr. Pyare Lal | kkk |
