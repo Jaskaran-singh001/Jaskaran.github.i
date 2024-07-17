@@ -12,3 +12,5 @@ I recently passed my 10+2 in Govt.sen.sec school,Salana
 |3.|Physics|70|
 |4.|Chemistry|87|
 |5.|Math|79|
+
+**Result**:
