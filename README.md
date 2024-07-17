@@ -14,3 +14,5 @@ I recently passed my 10+2 in Govt.sen.sec school,Salana
 |5.|Math|79|
 
 **Result**: PASS 404
+
+      **INDUCTION ACTIVITY REPORTE**
