@@ -13,4 +13,4 @@ I recently passed my 10+2 in Govt.sen.sec school,Salana
 |4.|Chemistry|87|
 |5.|Math|79|
 
-**Result:**PASS 404
+**Result**PASS 404
