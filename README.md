@@ -45,4 +45,5 @@ I recently passed my 10+2 in Govt.sen.sec school,Salana
 | 24.07.2024 | By Seniors | Information about Causmic Club | 
 | 25.07.2024 | UHV class by JK mam | Chapter 3 and 4 | 
 | 25.07.2024 | Peer Interaction class by seniors | Information about college |
+
 ![IMG_7425](https://github.com/user-attachments/assets/41fc3a62-300d-49a8-afd0-409f021040b4)
