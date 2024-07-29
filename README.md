@@ -1,5 +1,5 @@
 ![IMG_7425](https://github.com/user-attachments/assets/41fc3a62-300d-49a8-afd0-409f021040b4)
-mop#Jaskaran.github.io
+Jaskaran.github.io
 Hey, I'm Jaskaran singh.I belong to Salana Dist.-Fatehgarh sahib
 I recently passed my 10+2 in Govt.sen.sec school,Salana
 
