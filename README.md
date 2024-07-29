@@ -1,5 +1,3 @@
-
-
 Hey, I'm Jaskaran singh.I belong to Salana Dist.-Fatehgarh sahib
 I recently passed my 10+2 in Govt.sen.sec school,Salana
 
